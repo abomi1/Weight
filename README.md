@@ -12,7 +12,9 @@ RFCHOST 官网: [https://www.rfchost.com](https://my.rfchost.com/aff.php?aff=132
 
 ## RFCHOST 优惠码
 
-目前 RFCHOST 提供多种优惠活动，具体优惠码信息请查看官网最新动态 。[点击查看 RFCHOST 官网最新优惠活动](https://my.rfchost.com/aff.php?aff=1324)
+目前 RFCHOST 提供多种优惠活动，具体优惠码信息请查看官网最新动态 。
+
+[点击查看 RFCHOST 官网最新优惠活动](https://my.rfchost.com/aff.php?aff=1324)
 
 ## RFCHOST 优惠活动
 
